@@ -19,3 +19,9 @@ ___bomboclaaaat___
 
 
 ***three***
+![image](https://github.com/leonlelioness/deez/assets/162930759/12c2dcfd-9460-4961-bb97-80d6a83fe46b)
+did that work? 
+
+![image](https://github.com/leonlelioness/deez/assets/162930759/85a27576-bef4-4cc7-9c91-cf001cfac226)
+
+
