@@ -8,3 +8,14 @@ i hope that worked
 -boom- how do you italicize i forgot *jlo*
 *OHHHH its the star thing*
 an *ASTERIK*
+__underline__
+_wait?_ 
+__oh i did do it right__
+
+___bomboclaaaat___ 
+*one*
+
+**two**
+
+
+***three***
